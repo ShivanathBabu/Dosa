@@ -1,4 +1,4 @@
 # Dosa shop
 
 # Plain dosa
-* Dosa Batter
+* Organic Dosa batter
