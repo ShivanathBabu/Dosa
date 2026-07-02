@@ -8,6 +8,8 @@
 * Dosa Batter
 * Erra karam
 
+
 # Egg Dosa
 * Dosa Batter
-* 2 Egg
+* 1/2 Eggs, karam, oil
+
